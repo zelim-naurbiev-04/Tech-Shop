@@ -1,2 +1,0 @@
-# Tech-Shop
-# Tech-Shop
